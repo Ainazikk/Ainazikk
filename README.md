@@ -1,8 +1,7 @@
-[![Header](https://github.com/Elturan911/Elturan911/blob/main/assets/1713973786050.jpeg)](https://www.linkedin.com/feed/)
+[![Header](https:https://github.com/Ainazikk/Ainazikk/blob/main/assets/11111.png)](https://www.linkedin.com/feed/)
 
 ## I am junior specialist of  User Testing Department at MEGA
 
-Latest
 
 HardSkills
 
