@@ -1,4 +1,4 @@
-[![Header](https:https://github.com/Ainazikk/Ainazikk/blob/main/assets/11111.png)](https://www.linkedin.com/feed/)
+[![Header](https://github.com/Ainazikk/Ainazikk/blob/main/assets/11111.png)](https://www.linkedin.com/feed/)
 
 ## I am junior specialist of  User Testing Department at MEGA
 
